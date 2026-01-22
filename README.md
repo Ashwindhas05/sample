@@ -1,1 +1,1 @@
-# sample to the entiere
+# sample to the entier
