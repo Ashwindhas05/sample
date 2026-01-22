@@ -1,1 +1,1 @@
-# sample to the entiere award
+# sample to the entiere
